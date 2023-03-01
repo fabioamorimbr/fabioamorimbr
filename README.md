@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on BK Logistica & Gestão Aduaneira
+- 🔭 I’m currently studying Analysis and Systems Development
 - 📫 How to reach me: https://wa.me/5511991036256
 
  ##
